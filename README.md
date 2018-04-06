@@ -1,2 +1,0 @@
-# YHT-resume
-YHT-resume
